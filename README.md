@@ -1,0 +1,1 @@
+# lj-s-QG-AI-learn-notes
